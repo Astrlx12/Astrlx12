@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Astrlx12
+- 👀 I’m interested in dealing stuff sheeesh
+- 🌱 I’m currently learning how to combo on Cammy
+- 📫 How to reach me - im stuck in the backrooms
